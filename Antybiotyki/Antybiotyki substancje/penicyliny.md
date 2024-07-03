@@ -1,0 +1,5 @@
+1) [[Naturalne penicyliny]]
+2) [[Izoksazolilowe penicyliny]]
+3) [[Aminopenicyliny]]
+4) [[Karboksypenicyliny]]
+5) [[Acyloureidopenicyliny i Piperazynopenicyliny]]

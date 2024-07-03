@@ -1,0 +1,2 @@
+- fumagilina
+- trychomycyna

@@ -1,0 +1,3 @@
+- [[aminoglikozydy]]
+- [[tetracykliny]]
+- [[glicylocykliny]]
