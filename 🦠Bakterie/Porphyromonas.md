@@ -1,0 +1,3 @@
+G-, beztleny
+
+infekcje pochwy

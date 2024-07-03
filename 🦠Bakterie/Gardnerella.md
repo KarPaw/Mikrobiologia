@@ -1,0 +1,4 @@
+G-, beztleny
+
+biofilm
+
