@@ -1,0 +1,2 @@
+[[wirus ospy prawdziwej]]
+[[MCV]] 

@@ -1,0 +1,6 @@
+[[Gorączka Zachodniego Nilu]]
+[[Denga]]
+[[Żółta gorączka]]
+[[Gorączka Zika]]
+[[HCV]]
+[[Kleszczowe zapalenie mózgu]]
